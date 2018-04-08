@@ -1,2 +1,1 @@
-it's time for lunch.
- this for redMan,you know!
+sunny day,are you happy?
